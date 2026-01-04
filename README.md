@@ -1,4 +1,4 @@
-# Hi, I'm Ruchith Tharana Alawaththa Aka Ruchith23! 👋  
+# Hi, I'm Techtraaz! 👋  
 
 **Full Stack Dev | Fintech Enthusiast 📈**
 
